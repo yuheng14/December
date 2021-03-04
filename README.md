@@ -1,2 +1,1 @@
-# December
-a freshman
+# 日复一日，必有精进
